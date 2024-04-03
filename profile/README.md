@@ -13,6 +13,8 @@ Temos como os membros que fazem os nossos projetos acontecerem
 * JustMonika
 * Linkdxd
 
+## Nossas Redes Sociais
+* [YouTube](https://www.youtube.com/@TeamRodium)
 
 ## Parceiros
 Nossos projetos são apoiados pela comunidade Doki Doki Translate Club, se você quer saber mais sobre os nossos mods e outros diversos mods que são traduzidos pela equipe DDTC, fique a vontade!
